@@ -1,1 +1,0 @@
-# siyoto.png
